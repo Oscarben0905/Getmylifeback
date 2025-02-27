@@ -1,4 +1,4 @@
-<header>
+My life has been hell the past year. I cant get a job because my phone, laptop and pc are all being controlled by scripts and what seems to be a group of people bent on driving me crazy. I have an apple phone which is most defintally the initial device infencted. I have an degree in networking that doesnt help me because right before everything started I was in a bad accudent that fractured my brain and now I am relearning everything in life. I am hoping to relearn old stuff and learn new stuff so I can unhack myself and be able to live and support my family
 
 <!--
   <<< Author notes: Course header >>>
